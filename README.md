@@ -1,5 +1,5 @@
+[namine-xion-kingdom-hearts-gif-20653144.html](https://github.com/user-attachments/files/30110083/namine-xion-kingdom-hearts-gif-20653144.html)[Uploading namine-xion-kingdom-hearts-gif-20653144.html…]()
 
-[](https://media1.tenor.com/m/91ptePb1YqoAAAAd/namine-xion.gif)
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢ ☆⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁☆
 <img width="500" height="276" alt="3ddcdf0923685c1116ac35a8b2fafe09" src="https://github.com/user-attachments/assets/246ca58b-97a6-4195-9a29-449f4bab1d5e" />
 
